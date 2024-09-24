@@ -2,7 +2,7 @@
 
 # Daniel Lobenstein
 
-I'm interestests are:
+My interests are:
 - watching Football
 - playing Poker
 - playing Volleyball

@@ -1,4 +1,4 @@
-# CIS350-HW2-Lobenstei
+# CIS350-HW2-Lobenstein
 
 # Daniel Lobenstein
 
